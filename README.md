@@ -14,7 +14,7 @@ Afgerond:
 
 ## Ervaring
 
-Kelner, De Heikamp Ruurlo (2020 - heden)
+- Kelner, De Heikamp Ruurlo (2020 - heden)
 
-#### Vrijwillig
-Hulpverlener, Rode Kruis Nederland (2023 - heden)
+###Vrijwillig
+- Hulpverlener, Rode Kruis Nederland (2023 - heden)

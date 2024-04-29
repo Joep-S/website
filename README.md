@@ -13,8 +13,7 @@ Afgerond:
  - VWO, Het Stedelijk Zutphen (2023)
 
 ## Ervaring
-
 - Kelner, De Heikamp Ruurlo (2020 - heden)
 
-### Vrijwillig
+Vrijwillig:
 - Hulpverlener, Rode Kruis Nederland (2023 - heden)
